@@ -1,1 +1,1 @@
-Runners Munich is a community-focused sports organization dedicated to promoting health and wellness through running and various outdoor activities. We offer programs for all ages and skill levels, fostering a supportive environment in Munich. Join us to enhance your fitness, make new friends, and explore the beautiful landscapes of the city together!
+A community-focused sports organization dedicated to promoting health and wellness through running and various outdoor activities, offer programs for all ages and skill levels, fostering a supportive environment in Munich. 
